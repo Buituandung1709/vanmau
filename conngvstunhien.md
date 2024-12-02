@@ -1,4 +1,5 @@
-Hành tinh xanh kêu cứu: Bản giao hưởng dang dở giữa con người và tự nhiên
+**Hành tinh xanh kêu cứu: Bản giao hưởng dang dở giữa con người và tự nhiên**
+
 Từ thuở sơ khai, con người và tự nhiên đã hòa quyện thành một bản giao hưởng hùng vĩ. Tự nhiên nuôi dưỡng con người, ban tặng nguồn sống dồi dào, từ bầu không khí trong lành, nguồn nước mát tinh khiết đến muôn vàn sản vật thiên nhiên. Đáp lại, con người, bằng trí tuệ và sức lao động, khám phá, chinh phục và cải tạo tự nhiên, kiến tạo nên những kỳ quan văn minh. Tuy nhiên, bản giao hưởng ấy đang có nguy cơ trở thành khúc bi ai khi mối quan hệ giữa con người và tự nhiên ngày càng lệch lạc, đặc biệt là trong bối cảnh biến đổi khí hậu ngày càng gia tăng.
 
 Con người, bằng trí tuệ và nỗ lực của mình, đã tạo ra những thay đổi tích cực đối với tự nhiên. Việc xây dựng hệ thống thủy lợi, cải tạo đất đai, lai tạo giống cây trồng, vật nuôi đã giúp nâng cao năng suất, đáp ứng nhu cầu ngày càng tăng của xã hội. Việc thành lập các khu bảo tồn thiên nhiên, bảo vệ động vật hoang dã cũng góp phần duy trì sự đa dạng sinh học.
